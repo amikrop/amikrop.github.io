@@ -1,1 +1,0 @@
-# amikrop.github.io
